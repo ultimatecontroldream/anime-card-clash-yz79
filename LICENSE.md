@@ -1,4 +1,4 @@
-#  
+#  anime card clash Script smart is the best anime card clash Script, featuring auto-heal and speed. Safe and powerful for all your needs.
 
 
 
